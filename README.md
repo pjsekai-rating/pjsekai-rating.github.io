@@ -1,0 +1,1 @@
+# pjsekai-rating.github.io
